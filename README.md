@@ -1,4 +1,4 @@
-</div> <div align="center"> hermes — 𝗵e/him 𖦹.✧˚</div>
+</div> <div align="center"> hermes/wesker — 𝗵e/him 𖦹.✧˚</div>
 </div> <div align="center"> 19</div>
 </div> <div align="center"> 𝗔𝗗HD </div>
 </div> <div align="center"> ► whisper to interact! , i'm offtab often </div>
