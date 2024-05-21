@@ -2,7 +2,7 @@
 </div> <div align="center"> 19 — 𝗔𝗗HD</div>
 </div> <div align="center"> eng & esp</div>
 </div> <div align="center"> ► whisper to interact! , i'm offtab often </div>
-</div> <div align="center"> ► 𝙎𝙞𝙜𝙣 𝙢𝙮 [𝙜𝙪𝙚𝙨𝙩𝙗𝙤𝙤𝙠](https://xerosene.123guestbook.com/) 𝙤𝙧 𝙙𝙧𝙖𝙬 𝙤𝙣 𝙢𝙮 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚! </div>
+</div> <div align="center"> ► 𝙎𝙞𝙜𝙣 𝙢𝙮 𝙜𝙪𝙚𝙨𝙩𝙗𝙤𝙤𝙠 𝙤𝙧 𝙙𝙧𝙖𝙬 𝙤𝙣 𝙢𝙮 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚! </div>
 </div> <div align="center"> ► I like socializing a lot </div>
 </div> <div align="center"> I have memory issues, 𝗽𝗹𝗲𝗮𝘀𝗲 𝗯𝗲 𝗽𝗮𝘁𝗶𝗲𝗻𝘁! </div>
 </div> <div align="center"> 𝗜'𝗺 𝘁𝗮𝗸𝗲𝗻 🙏 </div>
