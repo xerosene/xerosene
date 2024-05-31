@@ -12,7 +12,7 @@
 </div> <div align="center"> ► I like socializing a lot </div>
 </div> <div align="center"> I have memory issues, 𝗽𝗹𝗲𝗮𝘀𝗲 𝗯𝗲 𝗽𝗮𝘁𝗶𝗲𝗻𝘁! </div>
 </div> <div align="center"> 𝗜'𝗺 𝘁𝗮𝗸𝗲𝗻 🙏 </div>
-</div> <div align="center"> I like DBD, IDV, Resident Evil, Metal Gear... (+ ask) </div>
+</div> <div align="center"> I like DBD, IDV, Resident Evil, Metal Gear, Devil may Cry... (+ ask) </div>
 <div align="center">
 	<img src="https://github.com/xerosene/xerosene/assets/132354142/ebfbd1d9-ef27-4422-b76f-89d776966110">
 ‎</div> <div align="center">ᶻ 𝗓 𐰁  </div>
