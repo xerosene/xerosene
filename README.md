@@ -14,7 +14,7 @@
 </div> <div align="center"> 𝗜'𝗺 𝘁𝗮𝗸𝗲𝗻 🙏 </div>
 </div> <div align="center"> I like DBD, IDV, Resident Evil, Metal Gear, Devil may Cry... (+ ask) </div>
 <div align="center">
-	<img src="https://github.com/xerosene/xerosene/assets/132354142/ebfbd1d9-ef27-4422-b76f-89d776966110">
+	<img src="https://github.com/xerosene/xerosene/assets/132354142/ebfbd1d9-ef27-4422-b76f-89d776966110"> <img src="https://i.postimg.cc/jSHDWkt4/Untitled512-20220917095323.png">
 ‎</div> <div align="center">ᶻ 𝗓 𐰁  </div>
 <div align="center">
-	<img src="https://github.com/xerosene/zero/assets/132354142/d7a99ab2-b785-48af-9742-70290d26b5b0">
+	<img src="https://i.ibb.co/tQJ7kkH/output-onlinepngtools.png">
