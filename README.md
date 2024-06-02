@@ -4,7 +4,7 @@
 </div> <div align="center"> ► whisper to interact! , i'm offtab often </div>
 </div>
 <div align="center">
-    ► <a href="https://xerosene.123guestbook.com/">𝙎𝙞𝙜𝙣 𝙢𝙮 𝙜𝙪𝙚𝙨𝙩𝙗𝙤𝙤𝙠</a>
+    ► <a href="https://retrospring.net/@xerosene">𝙎𝙞𝙜𝙣 𝙢𝙮 𝙧𝙚𝙩𝙧𝙤𝙨𝙥𝙧𝙞𝙣𝙜 </a>
 </div>
 <div align="center">
      <a href="https://xerosene.straw.page/drawmesmth">or draw on my strawpage!</a>
