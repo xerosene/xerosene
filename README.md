@@ -12,6 +12,9 @@
 </div> <div align="center"> ► I like socializing a lot </div>
 </div> <div align="center"> I have memory issues, 𝗽𝗹𝗲𝗮𝘀𝗲 𝗯𝗲 𝗽𝗮𝘁𝗶𝗲𝗻𝘁! </div>
 </div> <div align="center"> 𝗜'𝗺 𝘁𝗮𝗸𝗲𝗻 🙏 </div>
+<div align="center">
+     <a href="https://rentry.co/1-800-BIOHAZARD">I love my friends!!! </a>
+</div>
 </div> <div align="center"> I like DBD, IDV, Resident Evil, Metal Gear, Devil may Cry... (+ ask) </div>
 <div align="center">
 	<img src="https://github.com/xerosene/xerosene/assets/132354142/ebfbd1d9-ef27-4422-b76f-89d776966110"> <img src="https://i.postimg.cc/jSHDWkt4/Untitled512-20220917095323.png">
