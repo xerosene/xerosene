@@ -7,7 +7,7 @@
     ► <a href="https://retrospring.net/@xerosene">𝙎𝙞𝙜𝙣 𝙢𝙮 𝙧𝙚𝙩𝙧𝙤𝙨𝙥𝙧𝙞𝙣𝙜 </a>
 </div>
 <div align="center">
-     <a href="https://xerosene.straw.page/drawmesmth">or draw on my strawpage!</a>
+     <a href="https://xerosene.straw.page/sillyahh">or draw on my strawpage!</a>
 </div>
 </div> <div align="center"> ► I like socializing a lot </div>
 </div> <div align="center"> I have memory issues, 𝗽𝗹𝗲𝗮𝘀𝗲 𝗯𝗲 𝗽𝗮𝘁𝗶𝗲𝗻𝘁! </div>
