@@ -15,7 +15,7 @@
 <div align="center">
      <a href="https://rentry.co/1-800-BIOHAZARD">I love my friends!!! </a>
 </div>
-</div> <div align="center"> I like DBD, IDV, Resident Evil, Metal Gear, Devil may Cry, Invizimals... (+ ask) </div>
+</div> <div align="center"> I like DBD, IDV, Fallout, Resident Evil, Metal Gear, Devil may Cry, Invizimals... (+ ask) </div>
 <div align="center">
 	<img src="https://github.com/xerosene/xerosene/assets/132354142/ebfbd1d9-ef27-4422-b76f-89d776966110"> <img src="https://i.postimg.cc/jSHDWkt4/Untitled512-20220917095323.png">
 ‎</div> <div align="center">ᶻ 𝗓 𐰁  </div>
