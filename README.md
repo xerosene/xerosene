@@ -1,3 +1,6 @@
+<div align="center">
+	<img src="https://64.media.tumblr.com/fa20c1060ba45602acd177e8cca9fa38/7173e688e7dc2e36-1c/s640x960/4c7e88af8e898891e32f4fb8d95327f6990f3a70.pnj">
+‎
 </div> <div align="center"> hermes/birkin — 𝗵e/him 𖦹.✧˚</div>
 </div> <div align="center"> 19 — 𝗔𝗗HD</div>
 </div> <div align="center"> eng & esp</div>
@@ -21,8 +24,14 @@
 <div align="center">
 	<img src="https://github.com/xerosene/xerosene/assets/132354142/ebfbd1d9-ef27-4422-b76f-89d776966110"> <img src="https://i.postimg.cc/jSHDWkt4/Untitled512-20220917095323.png">
 ‎</div> <div align="center">ᶻ 𝗓 𐰁  </div>
-<div align="center">
-	<a href="https://youtu.be/trLWqilxiM0?si=-mEZTjGXpFmJb9GI">
-		<img src="https://i.ibb.co/X3MWKJL/1-MCQ-29-M7266165-medium-w640-h480-q75-nendoroidconnor-1594725719.png" alt="Image Description">
 	</a>
 </div>
+	<div align="center">
+    <img src="https://i.ibb.co/YRy0Twr/tumblr-0daff9c85b9b87d61e1a610bdf5b6805-daeeae6b-640-1-1.jpg" style="display: inline-block; margin-right: 10px;">
+    <img src="https://i.ibb.co/RcnLztc/tumblr-0fe158ba1f41b6aa8d025efc5d3d097c-ebde1603-1280.jpg" style="display: inline-block; margin-right: 10px;">
+    <img src="https://i.ibb.co/Vtsngy2/tumblr-3fc5566659a2e74bc4864c5dc8ba29d0-f4b8beab-640.jpg" style="display: inline-block;">
+<div align="center">
+    <img src="https://i.ibb.co/Khq1CTg/tumblr-388f2058d6c7bd8ae8f2c457dbf1c870-a78eb802-1280.jpg" style="display: inline-block; margin-right: 10px;">
+    <img src="https://i.ibb.co/V2TLC5k/tumblr-1f09aef4a6dceaa06783a616acdc3890-0f513f40-1280.jpg" style="display: inline-block; margin-right: 10px;">
+    <img src="https://i.ibb.co/jyr1HF8/tumblr-a71d0b12d809c306b7d0590dd7c5f798-c66419dc-400.jpg" style="display: inline-block;">
+<img src="https://64.media.tumblr.com/26e2231703164b0a896aab33a4a6fcfb/778b75e55c7ae2aa-45/s1280x1920/325c1a18d26937bbed33796d57898b11b83c47fd.jpg">
