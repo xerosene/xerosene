@@ -21,4 +21,7 @@
 	<img src="https://github.com/xerosene/xerosene/assets/132354142/ebfbd1d9-ef27-4422-b76f-89d776966110"> <img src="https://i.postimg.cc/jSHDWkt4/Untitled512-20220917095323.png">
 ‎</div> <div align="center">ᶻ 𝗓 𐰁  </div>
 <div align="center">
-	<img src="https://i.ibb.co/X3MWKJL/1-MCQ-29-M7266165-medium-w640-h480-q75-nendoroidconnor-1594725719.png">
+	<a href="https://youtu.be/trLWqilxiM0?si=-mEZTjGXpFmJb9GI">
+		<img src="https://i.ibb.co/X3MWKJL/1-MCQ-29-M7266165-medium-w640-h480-q75-nendoroidconnor-1594725719.png" alt="Image Description">
+	</a>
+</div>
