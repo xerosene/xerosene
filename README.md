@@ -21,7 +21,7 @@
      <a href="https://rentry.co/1-800-BIOHAZARD">I love my friends!!! </a>
 </div>
 </div> <div align="center"> I like DBD, DBH, Fallout, Resident Evil, Metal Gear, </div>
-</div> <div align="center"> Devil may Cry, Hotline Miami, Postal, Invizimals... (+ ask) </div>
+</div> <div align="center"> Devil may Cry, Hotline Miami, Postal, IDV, Invizimals... (+ ask) </div>
 <div align="center">
 	<img src="https://github.com/xerosene/xerosene/assets/132354142/ebfbd1d9-ef27-4422-b76f-89d776966110"> <img src="https://i.postimg.cc/jSHDWkt4/Untitled512-20220917095323.png">
 ‎</div> <div align="center">ᶻ 𝗓 𐰁  </div>
