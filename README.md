@@ -20,8 +20,10 @@
 <div align="center">
      <a href="https://rentry.co/1-800-BIOHAZARD">I love my friends!!! </a>
 </div>
-</div> <div align="center"> I like DBD, DBH, Fallout, Resident Evil, Metal Gear, </div>
+</div> <div align="center"> 𝗜 𝗹𝗶𝗸𝗲 DBD, DBH, Fallout, Resident Evil, Metal Gear, </div>
 </div> <div align="center"> Devil may Cry, Hotline Miami, Postal, IDV, Invizimals... (+ ask) </div>
+</div> <div align="center"> 𝗗𝗡𝗜: basic dni criteria; HH/HB, DSMP, ranfren and okegom fandom,</div>
+</div> <div align="center"> 𝘳𝘦𝘢𝘭𝘪𝘵𝘺 𝘤𝘩𝘦𝘤𝘬𝘦𝘳𝘴; hoyoverse enjoyers are thin ice </div>
 <div align="center">
 	<img src="https://github.com/xerosene/xerosene/assets/132354142/ebfbd1d9-ef27-4422-b76f-89d776966110"> <img src="https://i.postimg.cc/jSHDWkt4/Untitled512-20220917095323.png">
 ‎</div> <div align="center">ᶻ 𝗓 𐰁  </div>
