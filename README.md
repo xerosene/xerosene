@@ -25,6 +25,8 @@
 </div> <div align="center"> 𝗗𝗡𝗜: basic dni criteria; HH/HB, DSMP, ranfren and okegom fandom,</div>
 </div> <div align="center"> reality checkers; hoyoverse enjoyers are thin ice </div>
 <div align="center">
+    ► <a href="https://rentry.co/NEXTSTOPARMAGEDDON">𝙈𝙮 𝙠𝙞𝙣𝙡𝙞𝙨𝙩! </a>
+<div align="center">
 	<img src="https://github.com/xerosene/xerosene/assets/132354142/ebfbd1d9-ef27-4422-b76f-89d776966110"> <img src="https://i.postimg.cc/jSHDWkt4/Untitled512-20220917095323.png">
 ‎</div> <div align="center">ᶻ 𝗓 𐰁  </div>
 </div> <div align="center"> + ° .  ๑・° ⊹ . + ° .  ๑・° ⊹ . + ° .  ๑・° ° .  ๑・° ⊹ . + ° .  ๑・° ⊹ . + ° .  ๑・°  ⊹ . +</a>
