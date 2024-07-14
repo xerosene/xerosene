@@ -21,7 +21,7 @@
      <a href="https://rentry.co/1-800-BIOHAZARD">I love my friends!!! </a>
 </div>
 </div> <div align="center"> 𝗜 𝗹𝗶𝗸𝗲 DBD, DBH, Fallout, Resident Evil, Metal Gear, </div>
-</div> <div align="center"> Devil may Cry, Hotline Miami, Postal, IDV, Hellenism... (+ ask) </div>
+</div> <div align="center"> Devil may Cry, Hotline Miami, Postal, IDV, Will Wood, Hellenism... (+ ask) </div>
 </div> <div align="center"> 𝗗𝗡𝗜: basic dni criteria; HH/HB, DSMP, ranfren and okegom fandom,</div>
 </div> <div align="center"> reality checkers; hoyoverse enjoyers are thin ice </div>
 <div align="center">
